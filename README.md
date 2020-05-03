@@ -44,6 +44,10 @@
 
 [【原曲キー】Lemon／米津玄師（ピアノソロ中上級） - YouTube](https://www.youtube.com/watch?v=NPlK9QCzqwY)
 
+### 六兆年と一夜物語
+
+[「ピアノ」六兆年と一夜物語 - YouTube](https://www.youtube.com/watch?v=-ewpdZmih4I)
+
 ### Other
 
 [【FULL】[Violet Evergarden OP] "Sincerely" - TRUE (Synthesia Piano Tutorial) - YouTube](https://www.youtube.com/watch?v=U2UaCpm0tVM)
