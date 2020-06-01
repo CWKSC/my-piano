@@ -12,7 +12,11 @@
 
 [Sword Art Online II Opening 2 - courage (Synthesia) - YouTube](https://www.youtube.com/watch?v=WEEk4oHSjwk)
 
+#### Sword Art Online II Opening 1 - IGNITE
+
 [Sword Art Online II (ソードアート・オンライン) OP - Ignite - piano version (warning: loud) - YouTube](https://www.youtube.com/watch?v=XGCwPlqhGlo)
+
+[【REMAKE】IGNITE - Sword Art Online Season 2 「ソードアート・オンライン 2期」Opening 1 (Piano Synthesia) - YouTube](https://www.youtube.com/watch?v=drPLIuY6EjU)
 
 ### 四月は君の嘘 / Your Lie in April
 
